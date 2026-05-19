@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a final year student at Bml Munjal University
+I am a final year student at Bml Munjal University.
 
 
 ## 🌐 Socials:
